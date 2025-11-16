@@ -1,5 +1,5 @@
-# 💫 About Me:
- ‧₊˚ ⋅ ౨ About Me ৎ  ‧₊ .ᐟ <br>ʚ currently studying in China<br>ʚ chronically online<br>ʚ loves design related stuffs ૮₍ •⤙•˶<br>ʚ wanna learn data science and algorithm<br><br>  ᶻ 𝗓 𐰁 .ᐟ<br>/ᐠ > ˕ <マ  this is me<br>an eepy cat
+#  ‧₊˚ ⋅ ౨ About Me ৎ  ‧₊ .ᐟ 
+<br>ʚ currently studying in China<br>ʚ chronically online<br>ʚ loves design related stuffs ૮₍ •⤙•˶<br>ʚ wanna learn data science and algorithm<br><br>  ᶻ 𝗓 𐰁 .ᐟ<br>/ᐠ > ˕ <マ  this is me<br>an eepy cat
 
 
 ## 🌐 Socials:
